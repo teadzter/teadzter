@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 
-![](https://github.com/user-attachments/assets/6c9604ff-0186-4b80-9e74-cad6266b67bd)
+![](https://files.catbox.moe/jtrjjg.gif)
 
 
 
