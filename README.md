@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 
-![](https://files.catbox.moe/jtrjjg.gif)
+meow im lazy remkking ts soon cs ts so UGLYYY
 
 
 
