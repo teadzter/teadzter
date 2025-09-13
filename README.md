@@ -21,7 +21,7 @@
       🐾𓂂　　　𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 <br>
       dni.;　basic dni　 ͜ ྀི ͡◞　 <br>
       ྀི　ex frnds　𓈒 <br>
-      .　　　byi　˚sarc　sensitive<br>
+      .　　　byi　˚sarc　carefree<br>
       competitive　.neglects　tonetags <br>
       𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟　　　𓂂🌊 <br>
     </td>
