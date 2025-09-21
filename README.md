@@ -1,4 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
+OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.com/user-attachments/assets/94c5a5c8-01a1-40d0-8676-fdc294259846" /> <br>
+
 <table>
   <tr>
     <td><img src="https://files.catbox.moe/vv6gaq.png" width="200"></td>
