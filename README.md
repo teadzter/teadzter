@@ -23,8 +23,8 @@ OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.co
       🐾𓂂　　　𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 <br>
       dni.;　basic dni　 ͜ ྀི ͡◞　 <br>
       ྀི　ex frnds　𓈒 <br>
-      .　　　byi　˚sarc　carefree<br>
-      competitive　.neglects　tonetags <br>
+      .　　　byi　˚sarc　<br>
+      neglects　tonetags often <br>
       𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟　　　𓂂🌊 <br>
     </td>
     <td><img src="https://files.catbox.moe/78rgg5.png" width="200"></td>
