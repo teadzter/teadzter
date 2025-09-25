@@ -8,7 +8,7 @@ OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.co
      💤｡　　　𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 <br>
      teardrop　ㅤ˚  ೀ   ࣪　or　teadzter ❜ <br>
      ┄┄　teardrop 🪽 ₊  ♡̷̷ㅤ۫ㅤ⏖ <br>
-      ͜ ྀི ͡◞ 　𓈒　　she he　.　xhem<br>
+      ͜ ྀི ͡◞ 　𓈒　　no prn　.　use name<br>
      bfdi　md　lssmp　 <br>
      𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟　　　𓂂🐰 <br>
     </td>
