@@ -1,35 +1,14 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.com/user-attachments/assets/94c5a5c8-01a1-40d0-8676-fdc294259846" /> <br>
 
-<table>
-  <tr>
-    <td><img src="https://files.catbox.moe/vv6gaq.png" width="200"></td>
-    <td>
-     💤｡　　　𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 <br>
-     teardrop　ㅤ˚  ೀ   ࣪　or　teadzter ❜ <br>
-     ┄┄　teardrop 🪽 ₊  ♡̷̷ㅤ۫ㅤ⏖ <br>
-      ͜ ྀི ͡◞ 　𓈒　　no prn　.　use name<br>
-     bfdi　md　lssmp　 <br>
-     𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟　　　𓂂🐰 <br>
-    </td>
-  </tr>
-</table>
-
-![](https://files.catbox.moe/ikewto.gif)
-
-<table>
-  <tr>
-    <td>
-      🐾𓂂　　　𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 <br>
-      dni.;　basic dni　 ͜ ྀི ͡◞　 <br>
-      ྀི　ex frnds　𓈒 <br>
-      .　　　byi　˚sarc　<br>
-      neglects　tonetags often <br>
-      𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟　　　𓂂🌊 <br>
-    </td>
-    <td><img src="https://files.catbox.moe/78rgg5.png" width="200"></td>
-  </tr>
-</table>
+# PLEASE READ BEFORE INT <br>
+first of all, basic dni criteria. dni if youre homophobic,, racist, muslimphobic, xenophobic, a proshipper,  etc etc. https://dont-interact-criteria.carrd.co/   https://basic-dni.crd.co/ <br>
+<br>
+do not interact if you have right winged political views and openly share it (if u dont nknow what that eans search it up) <br>
+________________________________
+do Not interact if you use harsh language and extreme sexual or racist incest etc etc jokes , or joke about serious topics harshly. example is, you add in details while joking about sexual stuff <br>
+________________________________
+do not int if your mental state is bad or youre extremely obsessive, sensitive, etc etc. please heal and take care of yourself first before interatcing with others as it can easily affect them. <br>
 
 ![](https://files.catbox.moe/xjowr3.jpg)
 
