@@ -8,7 +8,7 @@ do not interact if you have right winged political views and openly share it (if
 ________________________________
 do Not interact if you use harsh language and extreme sexual or racist incest etc etc jokes , or joke about serious topics harshly. example is, you add in details while joking about sexual stuff <br>
 ________________________________
-do not int if your mental state is bad or youre extremely obsessive, sensitive, etc etc. please heal and take care of yourself first before interatcing with others as it can easily affect them. <br>
+do not int if your mental state is doing extrenmely horribly or youre extremely obsessive, sensitive, etc etc. please heal and take care of yourself
 
 ![](https://files.catbox.moe/xjowr3.jpg)
 
