@@ -4,10 +4,8 @@ OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.co
 # PLEASE READ BEFORE INT <br>
 first of all, basic dni criteria. dni if youre homophobic,, racist, muslimphobic, xenophobic, a proshipper,  etc etc. https://dont-interact-criteria.carrd.co/   https://basic-dni.crd.co/ <br>
 <br>
-do not interact if you have right winged political views and openly share it (if u dont nknow what that eans search it up) <br>
-________________________________
-do Not interact if you use harsh language and extreme sexual or racist incest etc etc jokes , or joke about serious topics harshly. example is, you add in details while joking about sexual stuff <br>
-________________________________
+do not interact if you have right winged political views and openly share it (if u dont nknow what that eans search it up) ,
+do Not interact if you use harsh language and extreme sexual or racist incest etc etc jokes , or joke about serious topics harshly. example is, you add in details while joking about sexual stuff. ,
 do not int if your mental state is doing extrenmely horribly or youre extremely obsessive, sensitive, etc etc. please heal and take care of yourself
 
 ![](https://files.catbox.moe/xjowr3.jpg)
