@@ -1,7 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.com/user-attachments/assets/94c5a5c8-01a1-40d0-8676-fdc294259846" /> <br>
 
-dni BASICC DNI CRITERIA!!!!!! 
+ rmking this soon -_o
 
 ![](https://files.catbox.moe/xjowr3.jpg)
 
