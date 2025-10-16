@@ -1,9 +1,9 @@
-<img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
+<img src="https://komarev.com/ghpvc/?username=s7ri&color=0050ff&label=losers" alt="Centered Image"> <br>
 OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.com/user-attachments/assets/94c5a5c8-01a1-40d0-8676-fdc294259846" /> <br>
 
- rmking this soon -_o
+ima lazy fataz so ts all u get for ma readme =_=
 
-![](https://files.catbox.moe/xjowr3.jpg)
+![](https://files.catbox.moe/v5f6wh.gif)
 
 
 
