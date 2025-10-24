@@ -1,11 +1,9 @@
-<img src="https://komarev.com/ghpvc/?username=s7ri&color=0050ff&label=losers" alt="Centered Image"> <br>
-OMG 7777!!!!!! -> <img width="82" height="19" alt="image" src="https://github.com/user-attachments/assets/94c5a5c8-01a1-40d0-8676-fdc294259846" /> <br>
-
-hi i am open to making friends!! most likely i enjoy holdig up convos but if not/not in the mood ill probably give signs or just not respond to you (aswell as havin dni etc ect in my name). im overall a talkative person and i enjoy chatting with others alot!! i will mostly be around with my trio (@15chuu + @beatiful derap love u guys /p) or with my amazing awesome girlfriend !! (@rubinator2763)
-
-ima lazy fataz so ts all u get for ma readme =_=
-
-![](https://postimg.cc/TyD3M5Rt)
+<div align="center">
+<img src="https://komarev.com/ghpvc/?username=s7ri&color=0050ff&label=losers" > <br>
+</div>
+<div align="center">
+<img src="https://file.garden/aPthuU9PkXWKuLKJ/IMG-4718-1-removebg-preview.png" > <br>
+</div>
 
 
 
