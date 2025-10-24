@@ -5,7 +5,7 @@ hi i am open to making friends!! most likely i enjoy holdig up convos but if not
 
 ima lazy fataz so ts all u get for ma readme =_=
 
-![](https://files.catbox.moe/v5f6wh.gif)
+![](https://postimg.cc/TyD3M5Rt)
 
 
 
