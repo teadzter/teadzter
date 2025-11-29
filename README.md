@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=cdc1b3&label=losers" > <br>
 </div>
 <div align="center">
-<img src="https://files.catbox.moe/ead5sw.png" > <br>
+<img src="https://files.catbox.moe/9di6vk.png" > <br>
 </div>
 
 
