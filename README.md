@@ -1,9 +1,20 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=40908e&label=losers" > <br>
 </div>
+
+
+ignore this bye im testing
+
+
+
+
+
+
 <div align="center">
-<img src="https://files.catbox.moe/0abasn.jpeg" > <br>
+<img width="1500" height="1500" alt="made by @15chuu!!" src="https://github.com/user-attachments/assets/6648ff35-8da5-4c92-bfd5-99ddae12b441" > <br>
 </div>
+
+<img width="2000" height="2000" alt="made by @15chuu" src="https://github.com/user-attachments/assets/6648ff35-8da5-4c92-bfd5-99ddae12b441" />
 
 
 
