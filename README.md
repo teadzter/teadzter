@@ -1,8 +1,8 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=s7ri&color=cdcaa9&label=losers" > <br>
+<img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
 </div>
 <div align="center">
-<img width="200" height="200" alt="c" src="https://files.catbox.moe/dcfxo7.jpg" > <br>
+<img alt="c" src="https://files.catbox.moe/lhvdho.jpg" > <br>
 </div>
 
 
