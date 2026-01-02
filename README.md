@@ -1,9 +1,7 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
 </div>
-<div align="center">
-<img alt="c" src="https://files.catbox.moe/lhvdho.jpg" > <br>
-</div>
+
 
 
 
