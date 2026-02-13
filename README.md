@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
 </div>
 
-hello i rarely play this game ayynymore oomfs in foillwig
+hi guys im  going to quit this game pribabl y
 
 
 
