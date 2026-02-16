@@ -2,8 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
 </div>
 
-hi guys im  going to quit this game pribabl y i doont have acces 2 github after this
-
+i quit this gme i only get on to play with close friends theres t man y weirdoson here itsinsane   :/
 
 
 
