@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
 </div>
 
-i quit this gme i only get on to play with close friends theres t man y weirdoson here itsinsane   :/ unfilliw mee f u want 
+inactive in github fvor now but im semi-active in pt
 
 
 
