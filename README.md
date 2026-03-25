@@ -1,8 +1,6 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=76a2c5&label=losers" > <br>
-</div>
-
-inactive in github 
+</div>  
 
 
 
